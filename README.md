@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TransSquid
+- 👀 I’m interested in; tech. No specification. Just tech
+- 🌱 I’m currently learning: 9 different languages
+- 💞️ I’m looking to collaborate on: automated website bots
+- 📫 How to reach me: Discord; NeonSquid192010#8044
+- 😄 Pronouns: she/her 
+- ⚡ Fun fact: I hate ketchup
